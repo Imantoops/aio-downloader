@@ -7,6 +7,58 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 08:42
+---
+
+## IranianMinds — post 19866
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19866_1778389973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴 علی مطهری:
+
+علی لاریجانی در یک خانه امن در پردیس کشته شد و هنوز نمی‌دانیم این خانه چه جوری لو رفت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فرمانده ارتش پاکستان:
+
+اسلام آباد تمام تلاش خود را برای موفقیت در میانجیگری انجام می دهد و به این کار ادامه می دهد.
+
+@IranianMinds
+</div>
+
+## alonews — post 118973
+
+<div align="center">
+  <a href="telegram/content/alonews_118973_1778389977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران بیشترین سهم را در پست‌های تروث ترامپ دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118972
+
+<div align="center">
+  <a href="telegram/content/alonews_118972_1778389977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فایننشال تایمز به نقل از مدیر کانال پاناما: از زمان شروع جنگ با ایران، ترانزیت روزانه از طریق کانال ۲۰ درصد افزایش یافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 08:33
 ---
 
