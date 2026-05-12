@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 09:13
+---
+
+## WithYashar — post 11038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منتظر تایید خنثی سازی هستیم 😂🙌🏾
+</div>
+
+## WithYashar — post 11037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤭😂😂 لعنت به اخوند
+</div>
+
+## WithYashar — post 11036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : بوشهر دو بار زدن دود سیاه کانفینگم حجم نداره
+@withyashar
+</div>
+
+## WithYashar — post 11035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوشهر رو زدن پایگاه
+</div>
+
+## WithYashar — post 11034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار در بوشهر
+@withyashar
+</div>
+
+## WithYashar — post 11033
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11033_1778564617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی امروز در اجلاس امنیتی POLITICO واشنگتن سخنرانی می‌کنه، در کنار مقامات ارشد پنتاگون، وزیر سابق امنیت داخلی آمریکا، سناتورهای کمیته نیروهای مسلح، روسای کمیته اطلاعات مجلس و مقامات دفاعی آلمان و مدیران لاکهید مارتین.
+@withyashar
+</div>
+
+## iaghapour — post 2600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نمیتونم خبر رو تایید کنم ولی میگن:
+— افغانستان اینترنت 5G آورده.
+— عراق تلگرام رو رفع فیلتر کرده.
+— سوریه هم که ویزا و مستر کارت و...
+
+این که ما درگیر فیلترینگ مسخره هستیم واقعا گریه داره...
+</div>
+
+## alonews — post 119418
+
+<div align="center">
+  <a href="telegram/content/alonews_119418_1778564618.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 طبق گزارش سی‌ان‌ان، بسیاری از افراد در دایره نزدیک ترامپ می‌خواهند میانجی‌گران پاکستان رویکردی سخت‌گیرانه‌تر و مستقیم‌تر با ایران در طول مذاکرات داشته باشند.
+
+
+🔴برخی مقامات دولت ترامپ به این موضوع شک کرده‌اند که آیا واسطه‌های پاکستانی به طور کامل ناامیدی ترامپ از مذاکرات متوقف شده را منتقل می‌کنند یا خیر.
+
+
+🔴 دیگران معتقدند پاکستان ممکن است تفسیری خوش‌بینانه‌تر از موضع ایران را به ایالات متحده ارائه دهد تا آنچه مقامات فکر می‌کنند واقعیت را منعکس کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119417
+
+<div align="center">
+  <a href="telegram/content/alonews_119417_1778564619.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: بی‌صبرانه منتظر سفرم به چین هستم؛ اتفاقات بزرگی برای هر دو کشور رخ خواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 09:03
 ---
 
