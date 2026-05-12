@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 07:53
+---
+
+## WithYashar — post 11027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه 14 اسرائیل، تو حمله بعدی اهدافمون شامل موارد زیر میشه: - تاسیسات انرژی و صنعت پتروشیمی - صنعت خودروسازی و پایگاه‌ های موشک بالستیک - صنعت نفت و صنعت فولاد @withyashar
+</div>
+
+## IranIntlTV — post 336747
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336747_1778559800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۲۲ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 336746
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336746_1778559802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندی از انزلی با ارسال پیامی به ایران‌اینترنشنال، درباره وضعیت قطعی برق در این شهر روایت می‌کند که «افتضاح» است و می‌گوید چند ساعت در روز برق را بدون اطلاع قطع می‌کنند و هنوز تابستان شروع نشده، جمهوری اسلامی عذاب دادن مردم را آغاز کرده‌ است.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 07:42
 ---
 
